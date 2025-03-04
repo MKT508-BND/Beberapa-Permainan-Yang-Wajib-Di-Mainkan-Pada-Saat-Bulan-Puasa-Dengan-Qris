@@ -1,1 +1,1 @@
-# 3-Langkah-Mencari-Pola-Mahjong-ways-Dengan-Mudah-Untuk-Pemula.html
+Beberapa-Permainan-Yang-Wajib-Di-Mainkan-Pada-Saat-Bulan-Puasa-Dengan-Qris
